@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @lgbtq-social-networking-dating-app by @Navajjoo and @Cherokkee888 at @TheRainbowland and @LGBTQNetwork
+- 👋 Hi, I’m @The-Rainbowland Metaverse powered by $PRIDE coin with @LGBTQNetworkFoundation with team members: @Navajjoo and @Cherokkee888 at @The-Rainbowland and @LGBTQNetworkFoundation
 - 👀 Metaverse: https://rainbowland.org
 - 🌱 Website: https://lgbtqnetwork.space
 - 💞️ I’m looking to collaborate
