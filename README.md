@@ -1,5 +1,6 @@
-- 👋 Hi, I’m @The-Rainbowland Metaverse powered by $PRIDE coin with @LGBTQNetworkFoundation with team members: @Navajjoo and @Cherokkee888 at @The-Rainbowland and @LGBTQNetworkFoundation
+- 👋 Hi, I’m @The-Rainbowland Metaverse powered by $PRIDE coin with team members: @Navajjoo and @Cherokkee888 together with @The-Rainbowland and @LGBTQNetworkFoundation
 - 👀 Metaverse: https://rainbowland.org
+- 🏡 Radiant Residences: https://rr.rainbowland.org
 - 🌱 Website: https://lgbtqnetwork.space
 - 💞️ I’m looking to collaborate
 - 📫 How to reach me info@lgbtqnetwork.space
