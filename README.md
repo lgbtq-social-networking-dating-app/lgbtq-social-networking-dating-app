@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lgbtq-social-networking-dating-app by @Navajjoo and @Cherokkee888 at @TheRainbowland and @LGBTQNetwork
-- 👀 Metaverse: https://raiinbowland.org
+- 👀 Metaverse: https://rainbowland.org
 - 🌱 Website: https://lgbtqnetwork.space
 - 💞️ I’m looking to collaborate
 - 📫 How to reach me info@lgbtqnetwork.space
